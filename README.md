@@ -9,5 +9,4 @@ My name is ***Ashmin Bhujel*** an **IT student** from **Nepal** I'm currently st
 * *Graphics Designing*
 
 ### ***Got to start somewhere...***:black_heart:
-#### ***Technology***:computer: and ***Music***:headphones::musical_note:
-##### ***Bye, Take Care...***:butterfly:
+#### ***Technology*** :computer: and ***Music*** :headphones:
